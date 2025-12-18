@@ -1,0 +1,1 @@
+# Klasifikasi-Gambar-KA-vs-Lukisan-Buah-Tangan-Manusi
